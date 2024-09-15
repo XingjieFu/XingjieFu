@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning PNC
 - 💞️ I’m looking to collaborate on IV
 - 📫 How to reach me :fuxingjie1998@163.com
-- my wechat is fuxingjie_1998, U can add me,hhhh.
+- my wechat is Xingjie_Fu, U can add me.
 
 <!---
 XingjieFu/XingjieFu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
