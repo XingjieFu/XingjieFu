@@ -2,7 +2,7 @@
 - 👀 I’m interested in IV
 - 🌱 I’m currently learning PNC
 - 💞️ I’m looking to collaborate on IV
-- 📫 How to reach me :fuxingjie1998@163.com
+- 📫 How to reach me :fuxingjie98@gmail.com
 - my wechat is Xingjie_Fu, U can add me.
 
 <!---
